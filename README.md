@@ -1,1 +1,1 @@
-# MasterS
+# Hekathon - MasterGamerZ
